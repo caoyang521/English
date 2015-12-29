@@ -34,8 +34,8 @@
 	4. Focus on the core – use the most commonly use the words, and use the language to learn more 
 	把注意力集中在核心部分——使用高频词汇，利用你已经学会的东西学到更多。 
  
-	5. Get a language parent – someone who is fluent in the language and who will do their best to understand what you mean; who will not correct your mistakes; who will feedback their understanding of what you’re saying using correct language, and uses words that you know. 
-	找个语伴——能流利讲这门语言的人，或者能尽可能理解你说什么的人。注意，语伴不会纠正你的错误，但能够用正确的语言、你明白的语言来对你的表现做出反馈。  
+	5. Get a language parent – someone who is fluent in the language and who will do their best to understand what you mean		; who will not correct your mistakes; who will feedback their understanding of what you’re saying using correct languag		e, and uses words that you know. 
+	找个语伴——能流利讲这门语言的人，或者能尽可能理解你说什么的人。注意，语伴不会纠正你的错误，但能够用正确的语言、你明白的		语言来对你的表现做出反馈。  
 
 	6. Copy the face – watch native speakers and observe their face, and particular their mouth moves when they’re speaking. 
 	模仿面部表情——有些人的母语正是你要学习的新语言，你要观看他们讲话，观察他们的面部表情、尤其是讲话时的嘴型。  
