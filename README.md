@@ -42,3 +42,5 @@
 
 	7. “Direct connect” to the target language – find ways to connect words directly with images and other internal representations. 
 	在大脑和目的语之间建立“直接联系”——想办法让语言和大脑中的图像或其他内部表象产生直接联系。
+
+
