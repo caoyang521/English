@@ -38,7 +38,7 @@
 	 找个语伴——能流利讲这门语言的人，或者能尽可能理解你说什么的人。注意，语伴不会纠正你的错误，但能够用正确的语言、你明白的	 	 语言来对你的表现做出反馈。  
 
 	6. Copy the face – watch native speakers and observe their face, and particular their mouth moves when they’re speaking. 
-	模仿面部表情——有些人的母语正是你要学习的新语言，你要观看他们讲话，观察他们的面部表情、尤其是讲话时的嘴型。  
+	模仿面部表情——有些人的母语正是你要学习的新语言，你要观看他们讲话，观察他们的面部表情、尤其是讲话时的嘴型。    
 
 	7. “Direct connect” to the target language – find ways to connect words directly with images and other internal representations. 
 	在大脑和目的语之间建立“直接联系”——想办法让语言和大脑中的图像或其他内部表象产生直接联系。		
