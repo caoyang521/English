@@ -3,7 +3,7 @@
 * The five principles are: 5个原则：     
 
 	1. Focus on language content that is relevant to you.         
-	   专注和你日常相关的语言内容。  
+	   专注和你日常相关的语言内容。        
 	
 	2. Use your language as a tool to communicate from day 
 	   从学习这门语言的第一天开始，就把它当做你的交流方式。  
