@@ -1,6 +1,6 @@
 > 语言学家Chris Lonsdale总结出了5个原则、7个行动。他相信只要遵从这5个原则、践行这7个行动，任何人都能在6个月内学会一种外语。 
 
-* The five principles are: 5个原则：                                                                                               
+* The five principles are: 5个原则：                                                                                                  
 
 	1. Focus on language content that is relevant to you.            
 	   专注和你日常相关的语言内容。        
